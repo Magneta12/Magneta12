@@ -2,4 +2,4 @@
 - 👀 Estou interessado em viajar
 - 🌱 Atualmente estou aprendendo poha nenhuma
 - 💞️ Estou procurando algo para fazer na vida
-- 📫 amor esporte e sair com os amigos
+- 📫 amo minha namorada, esporte e sair com os amigos
