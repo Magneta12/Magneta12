@@ -1,5 +1,5 @@
  - 👋 [email](magnus.alemida@escola.pr.gov.br)
-- 👀 Estou interessado em viajar
+- 👀 Estou interessado em um onichan
 - 🌱 Atualmente estou aprendendo poha nenhuma
-- 💞️ Estou procurando algo para fazer na vida
+- 💞️ Estou procurando algo para fazer na vida(s3x0)
 - 📫 amo minha namorada, esporte e sair com os amigos
